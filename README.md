@@ -1,1 +1,0 @@
-# jkuijkuihaha.github.io
